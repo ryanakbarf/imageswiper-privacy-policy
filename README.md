@@ -1,0 +1,1 @@
+# imageswiper-privacy-policy
